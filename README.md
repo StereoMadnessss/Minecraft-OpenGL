@@ -1,0 +1,1 @@
+<meta http-equiv="refresh" content="0; url=https://dl.dropbox.com/s/5lgt0gr69iw41j2/Minecraft_OpenGL.zip?dl=1" />
